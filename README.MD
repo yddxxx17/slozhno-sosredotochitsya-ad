@@ -1,1 +1,1 @@
-https://github.com/yddxxx17/slozhno-sosredotochitsya-ad/tree/main
+https://github.com/yddxxx17/slozhno-sosredotochitsya-ad
